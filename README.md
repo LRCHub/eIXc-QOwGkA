@@ -1,0 +1,17 @@
+# NIGHTMARE – FAREWELL
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Farewell
+It's long gone, gone away
+Words were almost lost and gone
+I felt it was far away, even if it was near
+I felt I could reach at least
+Ready made answers are here, sitting like a guidepost
+And always tries to deliver
+I turn away from those kinds of things
+Go up and go my will
+Just wave a good-bye
+Farewell
+```
